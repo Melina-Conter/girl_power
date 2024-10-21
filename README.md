@@ -1,2 +1,2 @@
 # girl_power
-Le repository par les filles pour les filles
+Le repository par les filles pour les filles 🫀
